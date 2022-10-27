@@ -7,7 +7,7 @@ ABOUT MOTIVATING MYSELF
 #my work is empathy 
 #let vultures be
 #patience is a virture
-#i like his work ethic but def not him
+#i like his work ethic 
 #less repositries more organized repositries
 #more passionate for the right thing
 #people watching=my growth
